@@ -1,1 +1,1 @@
-Insert our project ideas below:
+Insert our project ideas below
